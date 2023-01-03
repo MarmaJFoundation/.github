@@ -2,7 +2,7 @@
 
 **Some of the OS projects you might find here:**
 
-👾 [Marma J Gaming](marmaj.org/gaming)
+👾 [Marma J Gaming](HTTPS://marmaj.org/gaming)
 
 🫰 [Allies Marketplace](https://twitter.com/allieeveknox)
 
